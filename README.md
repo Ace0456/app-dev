@@ -11,4 +11,7 @@ It is about Percy, a demigod and son of Poseidon, who goes on a quest to find Ze
 ## Why I Like It
 - Interesting story based on Greek mythology  
 - Full of action and adventure  
-- Teaches friendship and also courage
+- Teaches friendship and courage
+
+
+  updated version
